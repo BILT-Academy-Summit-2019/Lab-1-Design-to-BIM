@@ -1,1 +1,0 @@
-# Lab-1-Design-to-BIM
